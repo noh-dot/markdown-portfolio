@@ -1,1 +1,1 @@
-![Image of bumble bee](https://www.google.com/search?q=bees&rlz=1C1DIMA_enIE853IE857&source=lnms&tbm=isch&sa=X&ved=2ahUKEwjI__SgrJfoAhU9TxUIHaNoAXMQ_AUoAXoECBkQAw#imgrc=ooO_YmITf8oBOM)
+![Image of bumble bee](https://lh3.googleusercontent.com/proxy/y0XioY1lVAAWTxQkhVWCiNrRFc7gkh0e1h7HfufuG0n4RwoMf4O4tKy145eLeh3XuEhSfaaaxJZhWlNDotM55NDlen7B8DlCGfhd_Z7f0G6USzqTUV1XiFKWPUFtYrNuF-OuQDLbFWwGaXdTx2c)
