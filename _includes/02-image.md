@@ -1,0 +1,1 @@
+![Image of bumble bee](https://lh3.googleusercontent.com/proxy/y0XioY1lVAAWTxQkhVWCiNrRFc7gkh0e1h7HfufuG0n4RwoMf4O4tKy145eLeh3XuEhSfaaaxJZhWlNDotM55NDlen7B8DlCGfhd_Z7f0G6USzqTUV1XiFKWPUFtYrNuF-OuQDLbFWwGaXdTx2c)
